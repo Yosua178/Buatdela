@@ -1,2 +1,3 @@
 # Kado
-buat @rachilmaratuns
+buat @della
+
